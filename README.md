@@ -1,4 +1,5 @@
 # About ME :-) 
+<img src="Black and White Monochrome Illustration Artist LinkedIn Banner(1).png" alt="GitHub Banner" width="100%" />
 
 HEYLOO!
 
